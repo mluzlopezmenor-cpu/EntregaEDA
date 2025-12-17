@@ -71,5 +71,9 @@ Como tejedora de amigurumis en mi tiempo libre y compradora recurrente de patron
 
    
 
-   **https://docs.google.com/spreadsheets/d/1EmIvGkpUEX5s6Lg8uHkJNzE0MuGCM\_\_9lFLKq9ulIfo/edit?usp=sharing** 
+   **https://docs.google.com/spreadsheets/d/1EmIvGkpUEX5s6Lg8uHkJNzE0MuGCM\_\_9lFLKq9ulIfo/edit?gid=810795649#gid=810795649**
+
+   
+
+   
 
